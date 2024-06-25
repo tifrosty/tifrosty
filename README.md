@@ -12,3 +12,7 @@
 <p>Após o investimento em infraestrutura – a aquisição de um espaço bem maior na cidade de Maracanaú – com um maquinário de ponta, caminhões refrigerados e um ótimo sistema de gestão, conseguimos nos tornar mais presentes na vida dos nossos consumidores. E não parou por ai! Após esse momento, conseguimos estender nossas atividades através de filiais em Juazeiro do Norte (CE), Mossoró (RN), Teresina (PI), Recife (PE) e com um distribuidor em São Luís (MA).
 
 E assim, com um mix atual com mais de 200 itens ativos – presentes em nossas lojas de fábrica, varejistas, atacadistas, supermercados e até na bodega da esquina – o nosso objetivo é crescer ainda mais! É um enorme prazer compartilhar essa história de sucesso com você! Mas não pense que parou por aí, pois o futuro reserva grandes surpresas. É só o começo!<p>
+
+## Trabalhe Conosco 
+* https://ats.abler.com.br/jobs/recrutamentofrosty
+
