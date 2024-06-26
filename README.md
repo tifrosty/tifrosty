@@ -14,7 +14,7 @@
 E assim, com um mix atual com mais de 200 itens ativos – presentes em nossas lojas de fábrica, varejistas, atacadistas, supermercados e até na bodega da esquina – o nosso objetivo é crescer ainda mais! É um enorme prazer compartilhar essa história de sucesso com você! Mas não pense que parou por aí, pois o futuro reserva grandes surpresas. É só o começo!<p>
 
 ---
-## Marcas
+## Nossas Marcas
 ### Frosty
   - Há 33 anos trazendo o melhor que existe em sorvetes e picolés para os lares nordestinos! E com mais de 80 lojas de fábrica, tem pra todo mundo!
 
@@ -23,8 +23,9 @@ E assim, com um mix atual com mais de 200 itens ativos – presentes em nossas l
 
 ### Barbaresco
   - A Barbaresco retorna ao mercado cearense e passa a fazer parte da Frosty a partir de 2020, com os Gelatos Italianos inconfundíveis.
-
 ---
+
+
 ## Trabalhe Conosco 
 * https://ats.abler.com.br/jobs/recrutamentofrosty
 
